@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @bracksean
+- 👀 I’m interested in make a website 
+- 🌱 I’m currently learning to make a website
